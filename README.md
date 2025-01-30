@@ -1,5 +1,4 @@
-![image](https://github.com/user-attachments/assets/4534cf2f-a8cc-404e-9b62-0aadfaddfd4e)
-
+![image](https://github.com/user-attachments/assets/d8dcc417-acc7-4c4f-ae55-735444aaebfe)
 
 # EstagDiário
 
